@@ -1,2 +1,2 @@
 # Samsung-Galaxy-Z-Fold-8
-Samsung Galaxy Z Fold 8 được kỳ vọng sẽ có sự thay đổi đáng chú ý về thiết kế khi chuyển sang kiểu dáng rộng hơn và ngắn hơn so với Galaxy Z Fold 7
+[Samsung Galaxy Z Fold 8](https://fptshop.com.vn/tin-tuc/danh-gia/samsung-galaxy-z-fold-8-co-gi-moi-209428) được kỳ vọng sẽ tiếp tục trang bị màn hình Dynamic AMOLED 2X cao cấp, với màn hình chính khoảng 7,6 inch và màn hình ngoài dự kiến từ 5,4 đến 5,6 inch. Nhờ thiết kế được tinh chỉnh với tỷ lệ hiển thị mới, thiết bị hứa hẹn mang đến không gian sử dụng rộng rãi hơn, giúp các thao tác như nhập liệu, lướt web, đọc nội dung hay xem video trở nên thoải mái và thuận tiện hơn so với các thế hệ Galaxy Z Fold trước.
